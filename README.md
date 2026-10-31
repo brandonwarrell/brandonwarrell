@@ -1,6 +1,6 @@
 # Hi, I'm Brandon Warrell
 
-I'm a graphic designer in Palmetto, Florida, in the Sarasota–Bradenton area. My legal name is William Brandon Warrell, and I go by Brandon.
+I'm a graphic designer in the Sarasota–Bradenton area of Florida.
 
 I design posters, packaging, vehicle wraps, logos and social graphics, and I prepare print-ready files. I studied graphic design at State College of Florida, Manatee–Sarasota, where I earned the Graphic Design Support certificate.
 
